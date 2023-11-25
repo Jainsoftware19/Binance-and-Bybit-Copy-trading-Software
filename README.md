@@ -5,7 +5,7 @@ Binance and Bybit Copy trading Software ,
 
 Check software on below link
 
-https://bhansalisoft.com/Product.aspx?PID=30
+https://1.envato.market/DVRGEq
 
 <h4>What is Binance and Bybit copy trading software?</h4>
             <hr class="notop">
